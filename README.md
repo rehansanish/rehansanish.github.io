@@ -1,1 +1,1 @@
-# Logg App Privacy Policy
+# Email: rehansanish@gmail.com
