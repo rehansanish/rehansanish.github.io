@@ -1,1 +1,1 @@
-# loggprivacypolicy.github.io
+# Logg App Privacy Policy
